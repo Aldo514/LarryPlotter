@@ -2,4 +2,4 @@
 
 La historia de un hacker excepcional.
 
-**Aldo Danié**
+**Aldo Danié Acurio Salazar**
